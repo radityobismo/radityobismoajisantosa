@@ -1,0 +1,2 @@
+# radityobismoajisantosa
+buat belajar saja
